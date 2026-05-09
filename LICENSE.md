@@ -1,4 +1,4 @@
-
+Get the ultimate Magnetic for macOS extension with Magnetic for macOS smart Extension: OCR-support & duplicate-finder. Featuring OCR-support and duplicate-finder, it's the best
 
 
 
